@@ -1,2 +1,2 @@
 # 24k0741
-a place where things are stored
+A PLACE WHERE THINGS ARE STORED
